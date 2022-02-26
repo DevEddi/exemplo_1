@@ -6,4 +6,6 @@
  
  ## Como aproveitar faculdade de Sistemas de Informação
  
+ [Link](https://medium.com/@DevEddi/como-aproveitar-faculdade-de-sistemas-de-informa%C3%A7%C3%A3o-208d10dacdc7)
+ 
 
